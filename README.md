@@ -1,4 +1,4 @@
-Hi, I am Jacob,
+Hi, I am Jakub,
 
 Projects:
 
